@@ -1,0 +1,3 @@
+As an IT & software company specializing in modern digital solutions, Lemonpeak powers your business with payment solutions, web design, branding with logo designs and brand portfolio and mobile apps that allow you to thrive. Our clients get the best-in-class digital transformation tools necessary for businesses to stay ahead in the current competitive market
+
+We provide our clients with the best digital options on the market, customized to fit your individual needs. We arrived on the scene in 2011 and earned quick acclaim within the field. In the past decade, we’ve created a singular niche characterized by personable service and ground-breaking solutions. 
